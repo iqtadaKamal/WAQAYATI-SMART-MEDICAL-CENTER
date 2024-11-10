@@ -1,1 +1,0 @@
-# Waqayati-Smart-Medical-Center
